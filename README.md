@@ -4,6 +4,9 @@
 weekly instalments, where each episode must contain the previous seven
 Words of the Day from [Dictionary.com](https://www.dictionary.com).*
 
+Copyright © 2019 Christopher Harrison\
+Licensed under CC BY-NC-ND 4.0 International
+
 ---
 
 **6.1** I slurped at my tea during
