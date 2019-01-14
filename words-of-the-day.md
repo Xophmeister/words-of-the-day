@@ -25,3 +25,28 @@ concession to keep us compliant. It was a
 [palladium](https://www.dictionary.com/wordoftheday/2019/01/06) to them,
 of course, what with the rumours of unrest percolating from the quarters
 that didn't even get hot water.
+
+**13.1** The topic of idle conversation inevitably depreciated to
+Mismatch Island, the latest hit reality show to expose the
+[labyrinthine](https://www.dictionary.com/wordoftheday/2019/01/08)
+spectrum of human misery. Like an
+[iceblink](https://www.dictionary.com/wordoftheday/2019/01/12)
+signalling unsafe passage to a ship's captain, it had become an allegory
+on society for the ruling classes; a tie-breaker to their question,
+"Should we just
+[terraform](https://www.dictionary.com/wordoftheday/2019/01/11) Mars and
+leave them to it?"
+
+"Did anyone see Misfit Island, last night?" asked Danny, with a
+[pawky](https://www.dictionary.com/wordoftheday/2019/01/09) grin.
+
+Nobody liked Danny, but he wasn't wrong. In this latest episode, having
+[caromed](https://www.dictionary.com/wordoftheday/2019/01/13) from an
+earlier defeat in the pickled egg eating contest, Jez, the leader of the
+opposition, ultimately lost the people's vote. Each departure cues the
+[impresario](https://www.dictionary.com/wordoftheday/2019/01/10)'s
+welcome to the next islander: an ex-suicide bomber who, for legal
+reasons, let's call "Jack from Essex" (they're all called "Jack from
+Essex"). [Salvific](https://www.dictionary.com/wordoftheday/2019/01/07),
+he joined bouncy castle attendant Sandra, from Bradford. Hashtag
+explosive!
