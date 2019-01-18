@@ -49,7 +49,7 @@ earlier defeat in the pickled egg eating contest, Jez, the leader of the
 opposition, ultimately lost the people's vote. Each departure cues the
 [impresario](https://www.dictionary.com/wordoftheday/2019/01/10)'s
 welcome to the next islander: an ex-suicide bomber who, for legal
-reasons, let's call "Jack from Essex" (they're all called "Jack from
+reasons, we'll call "Jack from Essex" (they're all called "Jack from
 Essex"). [Salvific](https://www.dictionary.com/wordoftheday/2019/01/07),
 he joined bouncy castle attendant Sandra, from Bradford. Hashtag
 explosive!
