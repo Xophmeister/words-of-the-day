@@ -42,7 +42,7 @@ on society for the ruling classes; a tie-breaker to their question,
 [terraform](https://www.dictionary.com/wordoftheday/2019/01/11/) Mars
 and leave them to it?"
 
-"Did anyone see Misfit Island, last night?" asked Danny, with a
+"Did anyone see Misfit Island, last night?", asked Danny, with a
 [pawky](https://www.dictionary.com/wordoftheday/2019/01/09/) grin.
 
 Nobody liked Danny, but he wasn't wrong. In this latest episode, having
@@ -56,7 +56,7 @@ Essex").
 [Salvific](https://www.dictionary.com/wordoftheday/2019/01/07/), he
 joined bouncy castle attendant Sandra, from Bradford. Hashtag explosive!
 
-**20.1** "Oi oi!" came the
+**20.1** "Oi oi!", came the
 [phatic](https://www.dictionary.com/wordoftheday/2019/01/14/)
 pronouncement, as "Jack from Essex" strode onto set.
 
@@ -71,15 +71,15 @@ introductions were done with, this pair of
 the ante of conversation to the dizzying heights of what could be
 generously described as their careers.
 
-"So what do you, like, do?" asked "Jack from Essex".
+"So what do you, like, do?", asked "Jack from Essex".
 
-"I own my own business," came Sandra's
+"I own my own business.", came Sandra's
 [altiloquent](https://www.dictionary.com/wordoftheday/2019/01/20/)
 response.
 
 "Oh wow, that's sick, babe! Doing what?"
 
-"Events and entertainment management, mostly." Sandra's delusion was
+"Events and entertainment management, mostly.", Sandra's delusion was
 palpable. "I've had some really high-end clients: celebrities,
 [freegans](https://www.dictionary.com/wordoftheday/2019/01/19/),
 illuminati, you name it!"
@@ -101,5 +101,5 @@ in-between --
 to gawk at. It wouldn't last, of course, but who needs love when you've
 got ratings?
 
-"I'll tell you what, though: Sandra is proper fit!" Danny interrupted my
-soliloquy. Did I mention he's a prick?
+"I'll tell you what, though: Sandra is proper fit!", Danny interrupted
+my soliloquy. Did I mention he's a prick?
