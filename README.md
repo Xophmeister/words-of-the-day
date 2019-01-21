@@ -55,3 +55,51 @@ reasons, we'll call "Jack from Essex" (they're all called "Jack from
 Essex").
 [Salvific](https://www.dictionary.com/wordoftheday/2019/01/07/), he
 joined bouncy castle attendant Sandra, from Bradford. Hashtag explosive!
+
+**20.1** "Oi oi!" came the
+[phatic](https://www.dictionary.com/wordoftheday/2019/01/14/)
+pronouncement, as "Jack from Essex" strode onto set.
+
+This, of late, had become a trigger for me. I swear to God, if I hear it
+on the street, I can only
+[ratiocinate](https://www.dictionary.com/wordoftheday/2019/01/15/) that
+I'll punch its speaker squarely in the face before breaking down into
+uncontrollable tears. I digress. After the
+[perfunctory](https://www.dictionary.com/wordoftheday/2019/01/18/)
+introductions were done with, this pair of
+[gadabouts](https://www.dictionary.com/wordoftheday/2019/01/17/) upped
+the ante of conversation to the dizzying heights of what could be
+generously described as their careers.
+
+"So what do you, like, do?" asked "Jack from Essex".
+
+"I own my own business," came Sandra's
+[altiloquent](https://www.dictionary.com/wordoftheday/2019/01/20/)
+response.
+
+"Oh wow, that's sick, babe! Doing what?"
+
+"Events and entertainment management, mostly." Sandra's delusion was
+palpable. "I've had some really high-end clients: celebrities,
+[freegans](https://www.dictionary.com/wordoftheday/2019/01/19/),
+illuminati, you name it!"
+
+"Nice! So you must make a mint?"
+
+Sandra quickly changed the subject, "So what about you?"
+
+"Well, I'm kind of between jobs, at the minute. I quit my last one."
+
+"Why's that?"
+
+"I didn't like the commute."
+
+As was the nature of the show, it would just be a matter of time before
+our hapless heroes were meshed together, legs -- and everything
+in-between --
+[akimbo](https://www.dictionary.com/wordoftheday/2019/01/16/), for all
+to gawk at. It wouldn't last, of course, but who needs love when you've
+got ratings?
+
+"I'll tell you what, though: Sandra is proper fit!" Danny interrupted my
+soliloquy. Did I mention he's a prick?
