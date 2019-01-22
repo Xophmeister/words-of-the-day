@@ -82,7 +82,7 @@ response.
 "Events and entertainment management, mostly.", Sandra's delusion was
 palpable. "I've had some really high-end clients: celebrities,
 [freegans](https://www.dictionary.com/wordoftheday/2019/01/19/),
-illuminati, you name it!"
+Illuminati, you name it!"
 
 "Nice! So you must make a mint?"
 
