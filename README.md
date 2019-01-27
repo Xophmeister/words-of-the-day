@@ -103,3 +103,66 @@ got ratings?
 
 "I'll tell you what, though: Sandra is proper fit!", Danny interrupted
 my soliloquy. Did I mention he's a prick?
+
+**27.1** "Please proceed to Meeting Room B.", echoed a dismembered voice
+over the public address system; that same chilling voice with which they
+overdub blacked-out sex offenders on the nightly news. My soggy excuse
+for a biscuit dropped hopelessly into the gritty remains of my tea.
+
+An all hands meeting could only mean one thing: some
+[buzzwig](https://www.dictionary.com/wordoftheday/2019/01/24/) from
+upstairs was going to give us a pep talk; a futile attempt to
+[adrenalise](https://www.dictionary.com/wordoftheday/2019/01/23/) the
+masses to their particular
+[creed](https://www.dictionary.com/wordoftheday/2019/01/21/) of
+corporate morality and, "Oh, by the way, we're going to milk you for
+everything you've got."
+
+Heidi, the presumed-illegitimate daughter to the
+[oillionaire](https://www.dictionary.com/wordoftheday/2019/01/27/)
+family which owned the company,
+[sashayed](https://www.dictionary.com/wordoftheday/2019/01/26/) in to
+the meeting room with that look of vague contempt, masked by her fake
+smile and fake, well, fake everything, which comes so naturally to our
+masters.
+
+"Hello, people!", she beamed.
+
+We weren't people to her, of course, just an inconvenience. Still, she
+was a tiresome abstraction to us too, like free market capitalism or
+Thursdays, so it was at least a balanced relationship. Her salutation
+was met with an enthusiasm that only the sweet release of death could
+surpass.
+
+"Well, you all seem bright and cheerful!", I couldn't tell if she was
+being sarcastic. "Let's warm up this meeting with a little exercise.
+Whenever we speak, we must speak in
+[lipogram](https://www.dictionary.com/wordoftheday/2019/01/25/)."
+
+"What the Hell is that?", the new guy interrupted. The more experienced
+amongst us looked sheepish and swallowed our tongues. He wouldn't be
+here for much longer; we didn't even know his name. Poor bastard.
+
+"A lipogram?", Heidi regained her posture. "Well, it's when you have to
+avoid using a specific letter when you talk. It's fun! The idea is that
+it forces you to be more deliberate about what you're trying to
+communicate."
+
+We all looked nervous. Was this a test? Heidi's gaze turned to me. I
+didn't care any more; it was time for some civil disobedience.
+
+"Let's start with you and," she paused to think. "The letter S."
+
+I felt as though I was in a fucked up episode of Sesame Street.
+
+"So, as I see it, something--", I was cut short.
+
+"Remember!", Heidi had become visibly
+[shirty](https://www.dictionary.com/wordoftheday/2019/01/22/). "No
+letter S."
+
+"Sorry! Should we start afresh?", I paused, with the best pensive face I
+could muster. "So, as I was saying, some--"
+
+"Sshhh--", Heidi felt every eye in the room focused on her. "You know
+what? Forget it!"
