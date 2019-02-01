@@ -14,7 +14,7 @@ Licensed under CC BY-NC-ND 4.0 International
 in the bleak room. Someone had changed the R to an L one day; it gave us
 cause to smile, until we realised there was one fewer mug.
 
-"There will be no more biscuits!", we were told.
+"There will be no more biscuits!" we were told.
 
 These
 [neoteric](https://www.dictionary.com/e/word-of-the-day/neoteric-2019-01-02/)
@@ -33,7 +33,7 @@ to them, of course, what with the rumours of unrest percolating from the
 quarters that didn't even get hot water.
 
 **13.1** The topic of idle conversation inevitably depreciated to
-Mismatch Island, the latest hit reality show to expose the
+*Mismatch Island*, the latest hit reality show to expose the
 [labyrinthine](https://www.dictionary.com/e/word-of-the-day/labyrinthine-2019-01-08/)
 spectrum of human misery. Like an
 [iceblink](https://www.dictionary.com/e/word-of-the-day/iceblink-2019-01-12/)
@@ -43,7 +43,7 @@ on society for the ruling classes; a tie-breaker to their question,
 [terraform](https://www.dictionary.com/e/word-of-the-day/terraform-2019-01-11/)
 Mars and leave them to it?"
 
-"Did anyone see Misfit Island, last night?", asked Danny, with a
+"Did anyone see Misfit Island, last night?" asked Danny, with a
 [pawky](https://www.dictionary.com/e/word-of-the-day/pawky-2019-01-09/)
 grin.
 
@@ -54,15 +54,15 @@ leader of the opposition, ultimately lost the people's vote. Each
 departure cues the
 [impresario](https://www.dictionary.com/e/word-of-the-day/impresario-2019-01-10/)'s
 welcome to the next islander: an ex-suicide bomber who, for legal
-reasons, we'll call "Jack from Essex" (they're all called "Jack from
-Essex").
+reasons, we'll call *Jack from Essex* (they're all called *Jack from
+Essex*).
 [Salvific](https://www.dictionary.com/e/word-of-the-day/salvific-2019-01-07/),
 he joined bouncy castle attendant Sandra, from Bradford. Hashtag
 explosive!
 
-**20.1** "Oi oi!", came the
+**20.1** "Oi oi!" came the
 [phatic](https://www.dictionary.com/e/word-of-the-day/phatic-2019-01-14/)
-pronouncement, as "Jack from Essex" strode onto set.
+pronouncement, as *Jack from Essex* strode onto set.
 
 This, of late, had become a trigger for me. I swear to God, if I hear it
 on the street, I can only
@@ -75,15 +75,15 @@ introductions were done with, this pair of
 upped the ante of conversation to the dizzying heights of what could be
 generously described as their careers.
 
-"So what do you, like, do?", asked "Jack from Essex".
+"So what do you, like, do?" asked *Jack from Essex*.
 
-"I own my own business.", came Sandra's
+"I own my own business," came Sandra's
 [altiloquent](https://www.dictionary.com/e/word-of-the-day/altiloquent-2019-01-20/)
 response.
 
 "Oh wow, that's sick, babe! Doing what?"
 
-"Events and entertainment management, mostly.", Sandra's delusion was
+"Events and entertainment management, mostly." Sandra's delusion was
 palpable. "I've had some really high-end clients: celebrities,
 [freegans](https://www.dictionary.com/e/word-of-the-day/freegan-2019-01-19/),
 Illuminati, you name it!"
@@ -108,7 +108,7 @@ you've got ratings?
 "I'll tell you what, though: Sandra is proper fit!", Danny interrupted
 my soliloquy. Did I mention he's a prick?
 
-**27.1** "Please proceed to Meeting Room B.", echoed a dismembered voice
+**27.1** "Please proceed to Meeting Room B," echoed a dismembered voice
 over the public address system; that same chilling voice with which they
 overdub blacked-out sex offenders on the nightly news. My soggy excuse
 for a biscuit dropped hopelessly into the gritty remains of my tea.
@@ -130,7 +130,7 @@ in to the meeting room with that look of vague contempt, masked by her
 fake smile and fake, well, fake everything, which comes so naturally to
 our masters.
 
-"Hello, people!", she beamed.
+"Hello, people!" she beamed.
 
 We weren't people to her, of course, just an inconvenience. Still, she
 was a tiresome abstraction to us too, like free market capitalism or
@@ -138,16 +138,16 @@ Thursdays, so it was at least a balanced relationship. Her salutation
 was met with an enthusiasm that only the sweet release of death could
 surpass.
 
-"Well, you all seem bright and cheerful!", I couldn't tell if she was
+"Well, you all seem bright and cheerful!" I couldn't tell if she was
 being sarcastic. "Let's warm up this meeting with a little exercise.
 Whenever we speak, we must speak in
 [lipogram](https://www.dictionary.com/e/word-of-the-day/lipogram-2019-01-25/)."
 
-"What the Hell is that?", the new guy interrupted. The more experienced
+"What the Hell is that?" the new guy interrupted. The more experienced
 amongst us looked sheepish and swallowed our tongues. He wouldn't be
 here for much longer; we didn't even know his name. Poor bastard.
 
-"A lipogram?", Heidi regained her posture. "Well, it's when you have to
+"A lipogram?" Heidi regained her posture. "Well, it's when you have to
 avoid using a specific letter when you talk. It's fun! The idea is that
 it forces you to be more deliberate about what you're trying to
 communicate."
@@ -155,18 +155,18 @@ communicate."
 We all looked nervous. Was this a test? Heidi's gaze turned to me. I
 didn't care any more; it was time for some civil disobedience.
 
-"Let's start with you and," she paused to think. "The letter S."
+"Let's start with you and," she paused to think, "the letter S."
 
-I felt as though I was in a fucked up episode of Sesame Street.
+I felt as though I was in a fucked up episode of *Sesame Street*.
 
-"So, as I see it, something--", I was cut short.
+"So, as I see it, something--" I was cut short.
 
-"Remember!", Heidi had become visibly
+"Remember!" Heidi had become visibly
 [shirty](https://www.dictionary.com/e/word-of-the-day/shirty-2019-01-22/).
 "No letter S."
 
-"Sorry! Should we start afresh?", I paused, with the best pensive face I
+"Sorry! Should we start afresh?" I paused, with the best pensive face I
 could muster. "So, as I was saying, some--"
 
-"Sshhh--", Heidi felt every eye in the room focused on her. "You know
+"Sshhh--" Heidi felt every eye in the room focused on her. "You know
 what? Forget it!"
