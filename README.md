@@ -170,3 +170,60 @@ could muster. "So, as I was saying, some--"
 
 "Sshhh--" Heidi felt every eye in the room focused on her. "You know
 what? Forget it!"
+
+**3.2** Needless to say, any idiot could have
+[prognosticated](https://www.dictionary.com/e/word-of-the-day/prognosticate-2019-02-02/)
+the consequences of my little stunt. I had plausible deniability on my
+side, but any perceived slight would have me answering to *The Man*;
+that inalienable
+[synecdoche](https://www.dictionary.com/e/word-of-the-day/synecdoche-2019-01-29/)
+of the proletariat, whom count me proudly amongst their number. Sure
+enough, I was summoned to an ominously-termed *consultation* with HR the
+next morning.
+
+My boss, Jamal, was invited to attend. I liked Jamal: he had
+[bootstrapped](https://www.dictionary.com/e/word-of-the-day/bootstrap-2019-01-30/)
+his way up to his lofty position from a relatively humble background. We
+won't go into his origin story -- he isn't *Spiderman* -- but my
+belaboured point is that he knows how to treat people respectfully.
+While we waited for the directorate to grace us with their presence, he
+engaged me in casual
+[gibble-gabble](https://www.dictionary.com/e/word-of-the-day/gibble-gabble-2019-01-31/)
+to put me at ease.
+
+"So, if you could be any *Pokémon*, which would you choose?"
+
+"I want to say *Slakoth*, but maybe now wouldn't be the best time to
+mention that."
+
+Jamal chuckled, "Nice one! I'd go for--"
+
+Our ephemeral banter was interrupted by the arrival of HR, in all its
+pomp and self-importance. It was almost pantomimic, as this orangutan of
+a woman shifted her great heft into the meeting room, flanked by her
+murine lieutenants, scurrying desperately about her in a
+not-unprecedented attempt to avoid get sat on.
+
+"The book."
+
+One of her minions deferentially heaved an enormous binder on to the
+table in front of her. It seemed to billow with dust as what I could
+only assume to be a thousand years of company policy, scrawled across a
+[plexus](https://www.dictionary.com/e/word-of-the-day/plexus-2019-01-28/)
+of loose leaves and paper-clipped notes, came thumping down. This was
+HR's codex: document after document; countless amendments; revocations;
+revocations to revocations. The works. I'm only surprised it wasn't
+inscribed on to vellum scrolls, illuminated with the blood of peasants.
+Of course, she knew it all, in excruciating detail, but it would be
+against policy to not consult *the book*.
+
+The
+[hygge](https://www.dictionary.com/e/word-of-the-day/hygge-2019-02-03/)
+invoked earlier by Jamal began to wear off; we were in their world now
+and, while he had my back, there wasn't much he could do but nod
+thoughtfully. I had made my bed and it was time to grin and bear it. My
+mind sought an out, but I didn't know *the book* and only that contained
+the answers. The
+[sirenic](https://www.dictionary.com/e/word-of-the-day/sirenic-2019-02-01/)
+din of the fire alarm, maybe? That would only delay, even with genuine
+fire. What event, what circumstance could bring this to an end?
