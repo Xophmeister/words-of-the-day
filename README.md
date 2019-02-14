@@ -202,7 +202,7 @@ Our ephemeral banter was interrupted by the arrival of HR, in all its
 pomp and self-importance. It was almost pantomimic, as this orangutan of
 a woman shifted her great heft into the meeting room, flanked by her
 murine lieutenants, scurrying desperately about her in a
-not-unprecedented attempt to avoid get sat on.
+not-unprecedented attempt to avoid getting sat on.
 
 "The book."
 
