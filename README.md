@@ -12,8 +12,8 @@ Licensed under CC BY-NC-ND 4.0 International
 <!-- 20190106 Episode 1 -->
 I slurped at my tea during
 [elevenses](https://www.dictionary.com/e/word-of-the-day/elevenses-2019-01-03/)
-in the bleak room. Someone had changed the R to an L one day; it gave us
-cause to smile, until we realised there was one fewer mug.
+in the bleak room. Someone had changed the *R* to an *L* one day; it
+gave us cause to smile, until we realised there was one fewer mug.
 
 "There will be no more biscuits!" we were told.
 
@@ -87,9 +87,9 @@ response.
 "Oh wow, that's sick, babe! Doing what?"
 
 "Events and entertainment management, mostly." Sandra's delusion was
-palpable. "I've had some really high-end clients: celebrities,
-[freegans](https://www.dictionary.com/e/word-of-the-day/freegan-2019-01-19/),
-Illuminati, you name it!"
+palpable. "I've had some really high-end clients: celebrities;
+[freegans](https://www.dictionary.com/e/word-of-the-day/freegan-2019-01-19/);
+Illuminati. You name it!"
 
 "Nice! So you must make a mint?"
 
@@ -137,8 +137,8 @@ our masters.
 "Hello, people!" she beamed.
 
 We weren't people to her, of course, just an inconvenience. Still, she
-was a tiresome abstraction to us too, like free market capitalism or
-Thursdays, so it was at least a balanced relationship. Her salutation
+was a tiresome abstraction to us too -- like free market capitalism, or
+Thursdays -- so it was at least a balanced relationship. Her salutation
 was met with an enthusiasm that only the sweet release of death could
 surpass.
 
