@@ -222,8 +222,8 @@ The
 invoked earlier by Jamal began to wear off; we were in their world now
 and, while he had my back, there wasn't much he could do but nod
 thoughtfully. I had made my bed and it was time to grin and bear it. My
-mind sought an out, but I didn't know *the book* and only that contained
-the answers. The
+mind -- when it wasn't mixing metaphors -- sought an out, but I didn't
+know *the book* and only that contained the answers. The
 [sirenic](https://www.dictionary.com/e/word-of-the-day/sirenic-2019-02-01/)
 din of the fire alarm, maybe? That would only delay, even with genuine
 fire. What event, what circumstance could bring this to an end?
