@@ -9,7 +9,8 @@ Licensed under CC BY-NC-ND 4.0 International
 
 ---
 
-**6.1** I slurped at my tea during
+<!-- 20190106 Episode 1 -->
+I slurped at my tea during
 [elevenses](https://www.dictionary.com/e/word-of-the-day/elevenses-2019-01-03/)
 in the bleak room. Someone had changed the R to an L one day; it gave us
 cause to smile, until we realised there was one fewer mug.
@@ -32,7 +33,8 @@ of a concession to keep us compliant. It was a
 to them, of course, what with the rumours of unrest percolating from the
 quarters that didn't even get hot water.
 
-**13.1** The topic of idle conversation inevitably depreciated to
+<!-- 20190113 Episode 2 -->
+The topic of idle conversation inevitably depreciated to
 *Mismatch Island*, the latest hit reality show to expose the
 [labyrinthine](https://www.dictionary.com/e/word-of-the-day/labyrinthine-2019-01-08/)
 spectrum of human misery. Like an
@@ -60,7 +62,8 @@ Essex*).
 he joined bouncy castle attendant Sandra, from Bradford. Hashtag
 explosive!
 
-**20.1** "Oi oi!" came the
+<!-- 20190120 Episode 3 -->
+"Oi oi!" came the
 [phatic](https://www.dictionary.com/e/word-of-the-day/phatic-2019-01-14/)
 pronouncement, as *Jack from Essex* strode onto set.
 
@@ -108,7 +111,8 @@ you've got ratings?
 "I'll tell you what, though: Sandra is proper fit!", Danny interrupted
 my soliloquy. Did I mention he's a prick?
 
-**27.1** "Please proceed to Meeting Room B," echoed a dismembered voice
+<!-- 20190127 Episode 4 -->
+"Please proceed to Meeting Room B," echoed a dismembered voice
 over the public address system; that same chilling voice with which they
 overdub blacked-out sex offenders on the nightly news. My soggy excuse
 for a biscuit dropped hopelessly into the gritty remains of my tea.
@@ -171,7 +175,8 @@ could muster. "So, as I was saying, some--"
 "Sshhh--" Heidi felt every eye in the room focused on her. "You know
 what? Forget it!"
 
-**3.2** Needless to say, any idiot could have
+<!-- 20190203 Episode 5 -->
+Needless to say, any idiot could have
 [prognosticated](https://www.dictionary.com/e/word-of-the-day/prognosticate-2019-02-02/)
 the consequences of my little stunt. I had plausible deniability on my
 side, but any perceived slight would have me answering to *The Man*;
