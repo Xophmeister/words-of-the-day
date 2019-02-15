@@ -227,3 +227,5 @@ know *the book* and only that contained the answers. The
 [sirenic](https://www.dictionary.com/e/word-of-the-day/sirenic-2019-02-01/)
 din of the fire alarm, maybe? That would only delay, even with genuine
 fire. What event, what circumstance could bring this to an end?
+
+<!-- vim: set syntax=off: -->
