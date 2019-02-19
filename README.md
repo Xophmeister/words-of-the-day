@@ -279,7 +279,7 @@ shutdown.
 "Potatoes are not fruit. They are insects."
 
 The scratching of the pen stopped. The room became deathly silent as the
-cabinet of henchmen nervously looked up towards their leader for
+mischief of henchmen nervously looked up towards their leader for
 direction. She remained unfazed, perhaps with the very slightest hint of
 a furrowed brow, and began patiently flicking through the pages of *the
 book*.
