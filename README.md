@@ -233,4 +233,81 @@ know *the book* and only that contained the answers. The
 din of the fire alarm, maybe? That would only delay, even with genuine
 fire. What event, what circumstance could bring this to an end?
 
+<!-- 20190210 Episode 6 -->
+
+"Thank you both for attending to discuss the events of yesterday," began
+the orangutan. She looked me straight in the eye, "In your own words,
+could you please describe what happened?"
+
+Clearly, to them, I was
+[inculpated](https://www.dictionary.com/e/word-of-the-day/inculpate-2019-02-09/)
+with some heinous misdemeanor. Don't get me wrong, I knew what I was
+doing with my particular brand of low-key subversion, but the piercing
+stare of their prosecution did not seem proportional to what I saw as a
+harmless prank. I faltered under their disdain.
+
+"I, erm... I--"
+
+"Allegations have been brought before us -- and corroborated by several
+witnesses -- that, at approximately 11:35am yesterday, you had the
+[temerity](https://www.dictionary.com/e/word-of-the-day/temerity-2019-02-06/)
+to verbally undermine and harass your superior, Ms. Heinsacker, in
+Meeting Room B."
+
+My mind raced. How were my actions glorified into harassment? Who were
+these, presumably coerced, witnesses? What kind of name is *Heidi
+Heinsacker*? Alas, I was aghast and had no
+[prebuttal](https://www.dictionary.com/e/word-of-the-day/prebuttal-2019-02-10/)
+to their line of enquiry. Jamal looked reassuringly towards me, while
+the HR stenographer scrawled down notes. The scratching of his pen
+jarred at my nerves; louder and louder. I was starting to panic.
+
+"Err..."
+
+"These are very serious allegations, which we must investigate fully.
+Your very reticence is in and of itself telling." Her
+[hoggery](https://www.dictionary.com/e/word-of-the-day/hoggery-2019-02-05/)
+for blood was alarming. "So I'll ask you again: Could you please
+describe the events of yesterday?"
+
+I couldn't find a way out. The
+[rigmarole](https://www.dictionary.com/e/word-of-the-day/rigmarole-2019-02-04/)
+and intensity had become too much to bear. I could no longer calculate
+coherent solutions. I don't know what happened: My mind crashed and I
+shutdown.
+
+"Potatoes are not fruit. They are insects."
+
+The scratching of the pen stopped. The room became deathly silent as the
+cabinet of henchmen nervously looked up towards their leader for
+direction. She remained unfazed, perhaps with the very slightest hint of
+a furrowed brow, and began patiently flicking through the pages of *the
+book*.
+
+"When I was a kid, I thought *unbridled success* was a synonym for
+*bachelor*," I continued unawares.
+
+Jamal mustered genuine concern through the confusion and extended his
+hand towards me, "Are you OK, mate?"
+
+His
+[roborant](https://www.dictionary.com/e/word-of-the-day/roborant-2019-02-08/)
+gesture flipped something in my head. Was the recognition of a friendly
+face -- his simple act of kindness -- enough to take the edge off? It
+seemed so, as I began to feel calm and the clarity of
+[dullsville](https://www.dictionary.com/e/word-of-the-day/dullsville-2019-02-07/)
+return. For all HR's faults, I was relieved that their policy called for
+his presence. This was probably not their intended purpose, of
+outsourcing discipline -- I'm quite sure this will spawn yet another
+amendment -- but he made me feel safe.
+
+Meanwhile, the orangutan's leafing through *the book* had become
+increasingly agitated. I had my way out. If I can't think of a rule that
+will exonerate me, then I simply do something for which there is no
+guidance. *The book* is no help when the illusion of professionalism or
+the very fabric of the social contract itself breaks down.
+
+"Try not to step on the hands of snakes; their laundry can't feed
+itself!"
+
 <!-- vim: set syntax=off: -->
