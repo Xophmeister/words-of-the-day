@@ -301,9 +301,9 @@ gesture flipped something in my head. Was the recognition of a friendly
 face -- his simple act of kindness -- enough to take the edge off? It
 seemed so, as I began to feel calm and the clarity of
 [dullsville](https://www.dictionary.com/e/word-of-the-day/dullsville-2019-02-07/)
-return. For all HR's faults, I was relieved that their policy called for
-his presence. This was probably not their intended purpose, of
-outsourcing discipline -- I'm quite sure this will spawn yet another
+returned. For all HR's faults, I was relieved that their policy called
+for his presence. This was probably not their intended purpose, of
+outsourcing discipline -- I'm quite sure it will spawn yet another
 amendment -- but he made me feel safe.
 
 Meanwhile, the orangutan's leafing through *the book* had become
@@ -314,5 +314,64 @@ the very fabric of the social contract itself breaks down.
 
 "Try not to step on the hands of snakes; their laundry can't feed
 itself!"
+
+<!-- 20190217 Episode 7 -->
+
+HR's fearless leader had landed upon something that her look implied
+would break the impasse. Her
+[syntastry](https://www.dictionary.com/e/word-of-the-day/synastry-2019-02-13/)
+of arcane policy would surely divine something eventually, so I had to
+up my game while the
+[milieu](https://www.dictionary.com/e/word-of-the-day/milieu-2019-02-17/)
+of bewilderment was on my side.
+
+"I'm bringin' sexy back!" I blurted out, half in song.
+
+That
+[attractancy](https://www.dictionary.com/e/word-of-the-day/attractancy-2019-02-14/)
+did the trick and, in the distraction, I caught Jamal's worried eye for
+just a second and gave him an innocuous wink. His expression changed
+from perplexity to something I couldn't quite put my finger on.
+Nonetheless, I feel that he understood that there was no longer any
+cause for concern.
+
+What other
+[marvy](https://www.dictionary.com/e/word-of-the-day/marvy-2019-02-12/)
+nonsense could I come up with? The mad things one says when half asleep?
+Before I could think, everyone jumped as *the book* was slammed shut.
+
+"It's clear to us that you have lost control of your wits, possibly due
+to work-related stress."
+
+That was an interesting conclusion.
+
+"At your line manager's discretion," she turned towards Jamal. "I
+recommend he be put on long-term sick immediately, and to follow up
+with a medical professional within no more than the next five working
+days."
+
+"I agree," Jamal said, almost angrily.
+
+I liked the sound of that. Perhaps I could escape the winter and become
+a [snowbird](https://www.dictionary.com/e/word-of-the-day/snowbird-2019-02-16/)
+for a few months. Soaking up the sunshine amongst the
+[amphiscians](https://www.dictionary.com/e/word-of-the-day/amphiscians-2019-02-11/)
+in my enforced and sanctioned convalescence.
+
+"On the matter at hand," she continued. "This will be decided upon based
+on your aforementioned medical assessment."
+
+I wasn't out of the woods yet, it would seem. Plus I would have to keep
+up the charade for at least as long as this meeting endured.
+
+"Do you understand?"
+
+"Sausages."
+
+HR rose in unison and filed out of the room with the stoicism of a
+machine. The very unit of
+[onomastic](https://www.dictionary.com/e/word-of-the-day/onomastic-2019-02-15/)
+indifference: their judgement delivered; their work done; all carefully
+minuted for posterity. When out of earshot, I sighed in relief.
 
 <!-- vim: set syntax=off: -->
